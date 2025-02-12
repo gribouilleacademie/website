@@ -1,7 +1,7 @@
 ---
 title: "cdn"
 order: 4
-in_menu: true
+in_menu: false
 ---
 ![logoV1]({% link images/logo - 320.png %})
 
