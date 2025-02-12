@@ -3,7 +3,7 @@ title: "cdn"
 order: 4
 in_menu: false
 ---
-Une liste d'image réutilisable
+Une liste d'image réutilisables.
 
 ![logoV1]({% link images/logo - 320.png %})
 
