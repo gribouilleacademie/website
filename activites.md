@@ -17,7 +17,7 @@ Pour ceux qui ne sont pas sur Paris, nous proposons les "Mercredi c'est gribouil
 
 ## Février 2025
 
-Le 4 février on fait coup double à la tribu [Paris 11, passage de la main d'Or](https://osm.org/go/0BOfRL2X9g--?layers=C).  
+✍ Le 4 février on fait coup double à la tribu [Paris 11, passage de la main d'Or](https://osm.org/go/0BOfRL2X9g--?layers=C).  
 Agile Tribu organise un meetup ["Convivial'Tribu"](https://www.meetup.com/agiletribu/events/305825773/) et on y sera pour cloturer la journée avec une ["Gribouilli party"](https://www.linkedin.com/events/7289581309746728961/comments/)
 
 ✍ Le 19 février, nous recevons [Leila Blal].(https://www.linkedin.com/in/leilablal/)
