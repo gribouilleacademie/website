@@ -26,6 +26,13 @@ Agile Tribu organise un meetup ["Convivial'Tribu"](https://www.meetup.com/agilet
 
 ## Mars 2025
 
+Pas de RDV à la tribu en mars. La Gribouille du 11 mars est annulée.
+
+On compense avec des discussions sur notre Discord pour les abonnés
+
+Le RDV en ligne du 19 et 26 Mars sont annulés pour cause de Sommet des décoincés. Comme on y
+participe, on va pas faire un truc en parallèle. 
+
 Nous serons présent au [sommet des décoincés du Crayon](https://www.decoincesducrayon.com/sommet-2025) le samedi 22 mars à l'heure du gouter pour deux heures de mini-atelier en ligne à jouer en famille.  
 
 Prendre votre billet avec notre [lien affilié](https://www.decoincesducrayon.com/sommet-2025/2hbrx) c'est faire un geste pour soutenir l'association. 
