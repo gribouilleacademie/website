@@ -36,3 +36,14 @@ participe, on va pas faire un truc en parallèle.
 Nous serons présent au [sommet des décoincés du Crayon](https://www.decoincesducrayon.com/sommet-2025) le samedi 22 mars à l'heure du gouter pour deux heures de mini-atelier en ligne à jouer en famille.  
 
 Prendre votre billet avec notre [lien affilié](https://www.decoincesducrayon.com/sommet-2025/2hbrx) c'est faire un geste pour soutenir l'association. 
+
+Dimanche 30 Mars tirage au sort : tentez de gagner LA planche à dessiner de la Gribouille Académie. Proto #5
+Numérotée et dédicacée. Détail sur le [post LinkedIn](https://www.linkedin.com/posts/jpbonnafous_vous-avez-particip%C3%A9-au-sommet-des-d%C3%A9coinc%C3%A9s-activity-7310952499320913920-iAxv?rcm=ACoAAAZD5CYBMCoDeka2N0V7mU2Zl9h_MwqLkz4%%)
+
+## Avril 2025
+
+Après le sommet on reprend une vie 'normale'. Un rendez-vous en présentiel sur Paris à la Tribus le 8 Avril.
+
+Deux rencontres en ligne le 23 et 30 avril à 12h30.
+
+Pas de sujet (pour l'instant) à l'ordre du jour. Vous pouvez nous envoyez vos suggestions.
