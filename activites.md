@@ -38,7 +38,7 @@ Nous serons présent au [sommet des décoincés du Crayon](https://www.decoinces
 Prendre votre billet avec notre [lien affilié](https://www.decoincesducrayon.com/sommet-2025/2hbrx) c'est faire un geste pour soutenir l'association. 
 
 Dimanche 30 Mars tirage au sort : tentez de gagner LA planche à dessiner de la Gribouille Académie. Proto #5
-Numérotée et dédicacée. Détail sur le [post LinkedIn](https://www.linkedin.com/posts/jpbonnafous_vous-avez-particip%C3%A9-au-sommet-des-d%C3%A9coinc%C3%A9s-activity-7310952499320913920-iAxv?rcm=ACoAAAZD5CYBMCoDeka2N0V7mU2Zl9h_MwqLkz4%%)
+Numérotée et dédicacée. Détail sur le [post LinkedIn](https://www.linkedin.com/posts/jpbonnafous_vous-avez-particip%C3%A9-au-sommet-des-d%C3%A9coinc%C3%A9s-activity-7310952499320913920-iAxv?rcm=ACoAAAZD5CYBMCoDeka2N0V7mU2Zl9h_MwqLkz4)
 
 ## Avril 2025
 
