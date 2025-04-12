@@ -46,4 +46,6 @@ Après le sommet on reprend une vie 'normale'. Un rendez-vous en présentiel sur
 
 Deux rencontres en ligne le 23 et 30 avril à 12h30.
 
-Pas de sujet (pour l'instant) à l'ordre du jour. Vous pouvez nous envoyez vos suggestions.
+* le 23 : on complète notre bibliothèque de picto. On se préparer à la digitalisation
+* Le 30 : on échange sur nos différentes façons de passer du crayon au digitale : du scan avec
+* nettoyage, à la vectorisation ou la recopie sur tablette
