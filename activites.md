@@ -17,12 +17,10 @@ Pour ceux qui ne sont pas sur Paris, nous proposons les "Mercredi c'est gribouil
 
 ## Février 2025
 
-✍ Le 4 février on fait coup double à la tribu [Paris 11, passage de la main d'Or](https://osm.org/go/0BOfRL2X9g--?layers=C).  
+* Le 4 février on fait coup double à la tribu [Paris 11, passage de la main d'Or](https://osm.org/go/0BOfRL2X9g--?layers=C).  
 Agile Tribu organise un meetup ["Convivial'Tribu"](https://www.meetup.com/agiletribu/events/305825773/) et on y sera pour cloturer la journée avec une ["Gribouilli party"](https://www.linkedin.com/events/7289581309746728961/comments/)
-
-✍ Le 19 février, nous recevons [Leila Blal].(https://www.linkedin.com/in/leilablal/)
-
-✍ Le 26 février, on met les doigts dans le Digital.
+* Le 19 février, nous recevons [Leila Blal].(https://www.linkedin.com/in/leilablal/)
+* Le 26 février, on met les doigts dans le Digital.
 
 ## Mars 2025
 
@@ -49,3 +47,10 @@ Deux rencontres en ligne le 23 et 30 avril à 12h30.
 * le 23 : on complète notre bibliothèque de picto. On se préparer à la digitalisation
 * Le 30 : on échange sur nos différentes façons de passer du crayon au digitale : du scan avec
 * nettoyage, à la vectorisation ou la recopie sur tablette
+
+## Mai 2025
+
+* le 13 : RDV à la tribu pour une session de redisign du jeux créée par Anne Compagnon : "Dans ma boîte".
+* le 17 : "Gribouille at home", évènement privé.
+* le 21 : Mercredi c'est Gibouille. Sujet à définir.
+* le 28 : Mercredi c'est Gibouille. Sujet à définir.
