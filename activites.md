@@ -51,6 +51,7 @@ Deux rencontres en ligne le 23 et 30 avril à 12h30.
 ## Mai 2025
 
 * le 13 : RDV à la tribu pour une session de redisign du jeux créée par Anne Compagnon : "Dans ma boîte".
-* le 17 : "Gribouille at home", évènement privé.
-* le 21 : Mercredi c'est Gibouille. Sujet à définir.
-* le 28 : Mercredi c'est Gibouille. Sujet à définir.
+* le 18 : "Gribouille at home", évènement privé.
+* Deux épisodes sous le signe de la matirère: 
+  * le 21 : Mercredi c'est Gibouilli #26. Jouer avec des allumettes.
+  * le 28 : Mercredi c'est Gibouilli #27  Dessiner un blob.
