@@ -16,6 +16,15 @@ Retrouver ces évènements sur notre [page d'accueil](https://gribouilleacademie
 
 # Nos prochains RDV
 
+
+On expérimente le service Mobilizon.fr proposé par nos amis de Framasoft. Une application pour gérer
+des évènements un peu comme la plateforme meetup mais en version libre et plus éthique.
+
+A découvrir ici : [La Gribouille sur mobilizon](https://mobilizon.fr/@gribouilleacademie).
+
+Nous publirons nos futurs évènements sur cet espace et seront relayés sur notre page LinkedIn. Vous pourrez
+vous inscrire et rajouter ses rendez-vous dans vos agendas.
+
 ## Octobre 2025
 
 C'est la reprise :
@@ -25,4 +34,10 @@ C'est la reprise :
 
 ## Novembre 2025
 
-* On relance le Challenge Bikablovember
+* On expérimente un nouveau type de challenge.
+* On fait quoi quand on est confronté à la page blanche?
+
+## Decembre 2025
+
+* Un seul RDV en Decembre, le 17 autant dire qu'on va travailler notre liste au père Noël
+ 

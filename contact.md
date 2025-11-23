@@ -19,7 +19,7 @@ Toute l'info sur l'Asso sur notre [page
 LinkedIn](https://www.linkedin.com/company/gribouille-acad-mie). Abonnez-vous à la page!!. Vous
 pouvez aussi nous laissez un message sur la page (plus rapide).
 
-> Nous avons aussi un server Discord réservé au gribouilleur. Pour le rejoindre demandez un accès en MP depuis notre messagerie LinkedIn. 
+Nous avons aussi un server Discord réservé au gribouilleur. Vous pouvez candidater pour rejoindre notre serveur en suivant [ce lien](https://discord.gg/mMwkT64epz)
 
 <iframe src="https://discord.com/widget?id=979452817863491624&theme=dark" width="350" height="400" allowtransparency="true" frameborder="0" sandbox="allow-popups allow-popups-to-escape-sandbox allow-same-origin allow-scripts"></iframe>
 
