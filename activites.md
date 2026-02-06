@@ -55,3 +55,14 @@ vous inscrire et rajouter ses rendez-vous dans vos agendas depuis l'application.
 
 *  [Episode 34](https://mobilizon.fr/events/d04b7eb7-ed8b-437d-b0f5-e3d4d44c4057) le 21 Janvier.
 *  [Episode 35](https://mobilizon.fr/events/9b81ac54-8723-422c-9e84-e42a0ab6797b) le 28 Janvier.
+
+## Février 2026
+
+En février c'est B2B. (Back To Basic). On revient à des choses simples. Des trucs qui sont les plus utiles pour démarrer en FG.
+
+* [Episode 36](https://mobilizon.fr/events/eda6b181-a59c-4dda-a849-56a7175f096b) le 18 février.
+* [Episode_37](https://mobilizon.fr/events/2ddb94bc-93c9-4a8c-a928-60dd18c6db44) le 25 février.
+
+
+
+
