@@ -63,6 +63,15 @@ En février c'est B2B. (Back To Basic). On revient à des choses simples. Des tr
 * [Episode 36](https://mobilizon.fr/events/eda6b181-a59c-4dda-a849-56a7175f096b) le 18 février.
 * [Episode_37](https://mobilizon.fr/events/2ddb94bc-93c9-4a8c-a928-60dd18c6db44) le 25 février.
 
+## Mars 2026
 
+On poursuit notre activité B2B en mettant à l'honneur les pictos de tous les jours. Des idées ont
+émergées lors des dernières sessions... 😉
 
+On notera un déclage du calendrier. On avance nos RDV d'une semaine pour ne pas percuter le sommet
+des décoinces du crayon du 23 mars au 4 avril.
+
+* Episode_38 le 11 mars.
+* Episode 39 le 18 mars.
+* La Gribouille au sommet le 28 mars à 14:00
 
