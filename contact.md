@@ -27,9 +27,17 @@ Nous avons aussi un server Discord réservé au gribouilleur. Vous pouvez candid
 Désormais vous pouvez prendre rendez-vous avec la Gribouille Académie pour 1H de conseil
 personnalisé pour améliorer vos visuels. Le [planning des RDV](https://calendar.app.google/zo3KjUNV2M1zYfJg8)
 
-*Service réservé aux membrex enregistrés sur notre serveur DISCORD.
+On rassemble les membres de la gribouille disponibles pour discuter de votre sujet et échanger des
+conseils.
+
+*Service réservé aux membres enregistrés sur notre serveur DISCORD.*
+
+## Ne ratez plus un seul de nos RDV
+
+Pour ceux qui ne sont pas sur LinkedIn, retrouvez nos RDV et notre actualité sur [mobilizon](https://mobilizon.fr/@gribouille_academie). Synchronisez vos agendas,
+abonnez vous au fil rss, ou dans le fédiverse avec mastodon. @gribouille_academie@mobilizon.fr
 
 ## Devevenez adhérent
 
-Vous pouvez soutenir nos actions en adhérant à l'association pour 20€/an via 
+Vous pouvez soutenir nos actions en adhérant à l'association pour 20€/an (à date d'anniversaire) via 
 [notre site de paiement PAYASSO](https://www.payasso.fr/gribouille-academie/adhesion) 

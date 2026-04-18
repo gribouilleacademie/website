@@ -71,7 +71,24 @@ On poursuit notre activité B2B en mettant à l'honneur les pictos de tous les j
 On notera un déclage du calendrier. On avance nos RDV d'une semaine pour ne pas percuter le sommet
 des décoinces du crayon du 23 mars au 4 avril.
 
-* Episode_38 le 11 mars.
-* Episode 39 le 18 mars.
-* La Gribouille au sommet le 28 mars à 14:00
+* [Episode_38](https://mobilizon.fr/events/26664f6d-b64d-4e85-bd32-ed62275c2c64) le 11 mars.
+* [Episode 39](https://mobilizon.fr/events/6ab07457-5a51-4b34-a982-4e45183bdfbbu) le 18 mars.
+* [La Gribouille au sommet](https://mobilizon.fr/events/4f3f57cf-9718-4df1-b7f2-de1276c2e296) le 28 mars à 14:00.
+
+Nous avons eu un soucis avec la PF BBB chez FDN lors de l'épisode 39. Session interrompue et pas de
+replay dispo. Le soucis est réglé, mais toujours impossible de pouvoir uplaoder les slides de
+session. Nous avons trouvé un autre hébergeur qui propose BBB. Sûrement qu'on essayera ce
+dernier pour le prochain épisode. La page du mercredi sera mise à jour en fonction. Donc pour vous
+ça ne change rien dans le parcours. 
+
+## Avril 2026
+
+(theme & lien) à venir
+
+* Episode_40 le 22 avril. 
+* Episode_41 le 29 avril.
+
+## Mai 2026
+
+
 
