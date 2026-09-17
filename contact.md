@@ -9,7 +9,7 @@ in_menu: true
 
 * Président : Jean-Pierre 
 * Secrétaire : Sylviane
-* Trésorière : Sophie
+* Trésorière : Stéphane
 
 ## Nous contacter
 

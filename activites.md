@@ -83,12 +83,48 @@ dernier pour le prochain épisode. La page du mercredi sera mise à jour en fonc
 
 ## Avril 2026
 
-(theme & lien) à venir
-
 * Episode_40 le 22 avril. 
 * Episode_41 le 29 avril.
 
 ## Mai 2026
 
+* Episode_42 le 20 mai.
+* Episode_43 le 27 mai.
 
+## Juin 2026
 
+* Episode_44 le 10 juin.
+* Episode_45 le 17 juin.
+
+## Juillet Aout
+
+*C'est les vacances*. Les feutres sont au repos mais pas pour tout le monde. Gribouiller sur la plage
+c'est possible, plusieurs programme sont propsosés pour vour entrainer et ne pas perdre la main. 
+
+## Septembre 
+
+C'est la rentrée de la Gribouille. Session de remise en forme.
+
+* [Episode_46](https://mobilizon.fr/events/a905efe7-6470-4d80-9509-d0d1d7ba261b) le 23 septembre.
+* [Episode_47](https://mobilizon.fr/events/e054513a-0f6a-427a-8d2b-f1377baee248) le 30 septembre.
+
+## Octobre 
+
+__Attention__ Mercredi 21 Octobre : Conférence Demain c'est maintenant édition 4. La Gribouille sera présente avec les Gribouilleurs public. On avanace l'épisode 48 d'une semaine.
+
+* Episode_48 le 14 octobre.
+* Demain c'est maintenant : [la conférence édition 4](https://www.demain-maintenant.fr/). le 21 octobre. On se retrouve à l'acédémie du climat Paris IV
+* Episode_49 le 28 octobre.
+
+## Novembre
+
+La 50ieme : ca devrait être un évènement spécial.
+
+* Episode_50 le 18 novembre.
+* Episode_51 le 25 novembre.
+
+## Decembre
+
+__Attention__ Un seul épisode pour cloturer l'année et profiter des vacances en famille.
+
+* Episode_52 le 16 décembre.
